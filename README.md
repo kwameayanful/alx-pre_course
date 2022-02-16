@@ -1,1 +1,1 @@
-## ALX is fun.
+## ALX is the future of Africa.
